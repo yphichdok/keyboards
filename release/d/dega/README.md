@@ -12,8 +12,8 @@ What truly sets the Dega Keyboard apart is its user-friendly interface and the s
 Should you have any questions or require assistance with the Dega Keyboard, please don't hesitate to get in touch with our dedicated contact person:
 
 * Y Phic Hdok
-* Email: yphichdok@msfjustice.org
-* Web: msfjustice.org
+* Email: yphichdok@msfjustice.org, jack@montagnards.tech
+* Web: msfjustice.org, montagnards.tech
 
 Join us in our mission to empower and preserve the linguistic diversity of Vietnam's Central Highlands through the Dega Keyboard.
 
